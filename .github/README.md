@@ -17,17 +17,17 @@
 
 تم تطوير و تعريب الملف بواسطة [OSAMA](https://t.me/WWWL5)
 
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"> <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<img src="https://images.unsplash.com/photo-1470225620780-dba8ba36b745?ixlib=rb-4.0.3&ixid=MnwxMjA3fDB8MHxzZWFyY2h8Mnx8bXVzaWN8ZW58MHx8MHx8&auto=format&fit=crop&w=700&q=60">
 
 
 
 
-─「 [SOURCE SPIDER](https://t.me/EE_20) 」─ 
+─「 [SOURCE VIP](https://t.me/VIP_3112) 」─ 
 
 
-  الــمــلــف بــحــقــوق ســورس [ســبــايــدر](https://t.me/EE_20)
+  الــمــلــف بــحــقــوق ســورس [ســبــايــدر](https://t.me/VIP3V_bot)
 
-غـيـر مـسـمـوح بـتـغـيـيـر حـقـوق [الـمـلـف](https://t.me/EE_20)
+غـيـر مـسـمـوح بـتـغـيـيـر حـقـوق [الـمـلـف](https://t.me/VIP_3112)
 
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"> <img src="https://images.unsplash.com/photo-1470225620780-dba8ba36b745?ixlib=rb-4.0.3&ixid=MnwxMjA3fDB8MHxzZWFyY2h8Mnx8bXVzaWN8ZW58MHx8MHx8&auto=format&fit=crop&w=700&q=60">
